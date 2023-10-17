@@ -8,4 +8,4 @@
 - christopher.ferreira.santos@escola.pr.gov.br
 
 
-  ![](https://media.tenor.com/YAuVRkCd_3AAAAAd/mayday-korean.gif)
+ 
