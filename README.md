@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil no GitHub Hi there 👋
+
 
 - Meu nome é Christopher Matheus Ferreira dos Santos 🤠
 - Eu sou estudante e estou aprendendo a linguagem de programação Java Script, HTML , CSS 🤡
