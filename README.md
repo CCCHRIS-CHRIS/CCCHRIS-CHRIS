@@ -1,8 +1,8 @@
 
 
-- Meu nome é Christopher Matheus Pinto Ferreira dos Santos 🤠
-- Eu sou estudante e estou aprendendo a linguagem de programação Java Script, HTML , CSS 🤡
-- Utilizo esse espaço para armazenar meeus códigos e compartilhar experiẽncias
+- Meu nome é Christina Pinto Ferreira dos Santos 🤠
+- Eu estou aprendendo a virar transsexual 🏳️‍⚧️⚧️
+- Utilizo esse espaço para me libertar
 
 - ### meu email de contato é 📧
 - christopher.ferreira.santos@escola.pr.gov.br
